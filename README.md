@@ -1,2 +1,2 @@
 # orat-oret-online
-not my first repository, so masbuloh? lol jk.
+not my first repository, so LFG!
